@@ -12,5 +12,5 @@ Este e-book apresenta um roteiro de três dias em Sevilha, na Espanha, com os po
 Utilizei o "ChatGPT" para gerar o roteiro e resumi mantendo apenas as informações mais relevantes. Para concluir, gerei um e-book utilizando o e-bookmaker.AI. Não foi possível realizar a edição posterior do texto e complementação do conteúdo em razão da necessidade de upgrade pago na ferramenta.
 
 ## 🚀 Resultados
-O e-book gerado está disponível no endereço https://ebookmaker.ai/inverno-inesquecivel-em-sevilha
+O e-book gerado apresenta um conteúdo completo e envolvente para o viajante.
 
